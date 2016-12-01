@@ -1,4 +1,4 @@
-## Aplikasi Anakkost
+## Aplikasi Kriukk
 ###Nama : Ladinar Nanda Aprilia
 ### Kelas : XI RPL 1
 ###No Absen : 16
